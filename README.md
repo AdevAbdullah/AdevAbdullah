@@ -25,3 +25,4 @@ Hello! I’m Abdullah, a 7th grader with a drive for learning and discovery. I�
 ## Connect with Me
 
 If you share similar interests or would like to collaborate on a project, I’d love to connect and learn together!
+My discord name: .abdullah_645.
